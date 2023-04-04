@@ -13,3 +13,5 @@ Jika anda membutuhkan sesuatu
 Silahkan anda masuk ke grub telegram dengan cara klik tombol di bawah
 ```
 [Telegram](https://t.me/kutu_Moba57)
+#
+[Hdhdhhd](https://raw.githubusercontent.com/KutuMobaa/gabut/main/banerhtml.css)
