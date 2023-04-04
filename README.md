@@ -14,4 +14,5 @@ Silahkan anda masuk ke grub telegram dengan cara klik tombol di bawah
 ```
 [Telegram](https://t.me/kutu_Moba57)
 #
-![IMG_20230106_101808](https://user-images.githubusercontent.com/124151847/229664365-a7e41cd3-d5d1-4749-a289-fcc80e02040d.jpg)
+
+![20230404_084627](https://user-images.githubusercontent.com/124151847/229665288-41ef314e-491b-4edf-a28f-28c1d43d3f14.png)
